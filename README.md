@@ -1,1 +1,0 @@
-Designing a dream house with a focus on services and features provided through a website involves incorporating smart home technologies, online services, and seamless integration for an enhanced living experience. 
